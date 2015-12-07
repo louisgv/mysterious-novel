@@ -1,0 +1,1 @@
+Seems like a cool way to make a mysterious novel
